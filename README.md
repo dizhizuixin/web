@@ -6,7 +6,7 @@ des
 <br>
 【 http://b.com/ 】
 <br>
-【c.com】
+【 http://c.com 】
 <br>
 【https://d.com/】
 <br>
