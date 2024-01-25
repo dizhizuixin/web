@@ -2,14 +2,14 @@
 new
 des
 <br>
-【 http://a.com/ 】
+【 http://a.com 】
 <br>
-【 http://b.com/ 】
+【 http://b.com 】
 <br>
 【 http://c.com 】
 <br>
-【 https://d.com/ 】
+【 https://d.com 】
 <br>
-【 https://e.com/ 】
+【 https://e.com 】
 <br>
 {20240001}
