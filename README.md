@@ -2,15 +2,15 @@
 最新网址域名
 请收藏此页面（重要） 建议Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 <br>
-【 http://a.com 】
+【 http://www.2023ge.sbs 】
 <br>
-【 http://b.com 】
+【 http://www.2023ge.icu 】
 <br>
-【 http://c.com 】
+【 http://www.2023ge.lol 】
 <br>
-【 https://d.com 】
+【 https://www.2023ge.cam 】
 <br>
-【 https://e.com 】
+【 https://www.2023ge.site 】
 <br>
 網站正确訪問方式: www@2024Ge@com （@换成点；不能访问加HTTPS）*
 <br>
