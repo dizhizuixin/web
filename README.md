@@ -2,17 +2,17 @@
 最新网址域名
 请收藏此页面（重要） 建议Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 <br>
-【 http://www.2023ge.sbs 】
+【 http://www.2024ge.cfd 】
 <br>
-【 http://www.2023ge.icu 】
+【 http://www.2024ge.art 】
 <br>
-【 http://www.2023ge.lol 】
+【 http://www.2024ge.wiki 】
 <br>
-【 https://www.2023ge.cam 】
+【 https://www.2024ge.cam 】
 <br>
-【 https://www.2023ge.site 】
+【 https://www.2024ge.hair 】
 <br>
 網站正确訪問方式: www@2024Ge@com （@换成点；不能访问加HTTPS）*
 <br>
 如果以上地址均不可用，索取最新地址,请发邮件到 wwwZuiXin@mail.com  
-{20240002}
+{20240003}
