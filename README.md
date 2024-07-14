@@ -2,17 +2,17 @@
 最新网址域名
 请收藏此页面（重要） 建议Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 <br>
-【 http://www.2024ge.homes 】
+【 http://www.hehege.cam 】
 <br>
-【 http://www.2024ge.site 】
+【 http://www.hehege.fun 】
 <br>
-【 http://www.2024ge.online 】
+【 http://www.hehege.site 】
 <br>
-【 https://www.2024ge.shop 】
+【 https://www.hehege.sbs 】
 <br>
-【 https://www.2024ge.skin 】
+【 https://www.hehege.xyz 】
 <br>
-網站正确訪問方式: www@2024Ge@com （@换成点；不能访问加HTTPS）*
+網站正确訪問方式: www@HeHeGe@com （@换成点；不能访问加HTTPS）*
 <br>
 如果以上地址均不可用，索取最新地址,请发邮件到 wwwZuiXin@mail.com  
-{20240006}
+{20240007}
