@@ -6,13 +6,13 @@
 <br>
 【 http://www.hehege.fun 】
 <br>
-【 http://www.hehege.site 】
+【 http://www.hehege.guru 】
 <br>
 【 https://www.hehege.sbs 】
 <br>
-【 https://www.hehege.cyou 】
+【 https://www.hehege.cfd 】
 <br>
 網站正确訪問方式: www@HeHeGe@com （@换成点；不能访问加HTTPS）*
 <br>
 如果以上地址均不可用，索取最新地址,请发邮件到 wwwZuiXin@mail.com  
-{20240010}
+{20240011}
