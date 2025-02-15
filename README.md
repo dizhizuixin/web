@@ -8,11 +8,11 @@
 <br>
 【 http://www.aoaoge.cfd 】
 <br>
-【 https://www.cacage.hair 】
+【 https://www.AOAOGE.hair 】
 <br>
-【 https://www.cacage.sbs 】
+【 https://www.AOAOGE.sbs 】
 <br>
 網站正确訪問方式: www@aoaoGe@com （@换成点；不能访问加HTTPS）*
 <br>
 如果以上地址均不可用，索取最新地址,请发邮件到 wwwZuiXin@mail.com  
-{20250001}
+{20250002}
