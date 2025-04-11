@@ -2,9 +2,9 @@
 最新网址域名
 请收藏此页面（重要） 建议Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 <br>
-【 http://www.chachage.cc 】
+【 http://www.chachage.cfd 】
 <br>
-【 http://www.chachage.fun 】
+【 http://www.chachage.sbs 】
 <br>
 【 http://www.chachage.lat 】
 <br>
@@ -15,4 +15,4 @@
 網站正确訪問方式: www@chachaGe@com （@换成点；不能访问加HTTPS）*
 <br>
 如果以上地址均不可用，索取最新地址,请发邮件到 wwwZuiXin@mail.com  
-{20250403}
+{20250411}
