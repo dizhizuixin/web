@@ -2,17 +2,17 @@
 最新网址域名
 请收藏此页面（重要） 建议Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 <br>
-【 http://www.chechege.cc 】
+【 http://www.chechege.boats 】
 <br>
-【 http://www.chechege.xyz 】
+【 http://www.chechege.bond 】
 <br>
-【 http://www.chechege.life 】
+【 http://www.chechege.hair 】
 <br>
-【 https://www.chechege.buzz 】
+【 https://www.chechege.lol 】
 <br>
-【 https://www.chechege.mom 】
+【 https://www.chechege.skin 】
 <br>
 網站正确訪問方式: www@CheCheGe@com （@换成点；不能访问加HTTPS）*
 <br>
 如果以上地址均不可用，索取最新地址,请发邮件到 wwwZuiXin@mail.com  
-{20251222}
+{20260129}
