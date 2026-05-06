@@ -1,19 +1,19 @@
-# web《车车阁》《checheGe》《车车阁》-最新地址
+# web《热热阁》《rereGe》《热热阁》-最新地址
 最新网址域名
 请收藏此页面（重要） 建议Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 <br>
-【 http://www.chechege.club 】
+【 http://www.rerege.boats 】
 <br>
-【 http://www.chechege.casa 】
+【 http://www.rerege.homes 】
 <br>
-【 http://www.chechege.wiki 】
+【 http://www.rerege.motorcycles 】
 <br>
-【 https://www.chechege.beer 】
+【 https://www.rerege.yachts 】
 <br>
-【 https://www.chechege.rest 】
+【 https://www.rerege.quest 】
 <br>
-網站正确訪問方式: www@CheCheGe@com （@换成点；不能访问加HTTPS）*
+網站正确訪問方式: www@ReReGe@com （@换成点；不能访问加HTTPS）*
 <br>
 如果以上地址均不可用，索取最新地址,请发邮件到 wwwZuiXin@mail.com  
-{20260316}
+{20260506}
 
