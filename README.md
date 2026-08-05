@@ -10,10 +10,10 @@
 <br>
 【 https://www.rerege.help 】
 <br>
-【 https://www.rerege.rest 】
+【 https://www.rerege.cfd 】
 <br>
 網站正确訪問方式: www@ReReGe@com （@换成点；不能访问加HTTPS）*
 <br>
 如果以上地址均不可用，索取最新地址,请发邮件到 wwwZuiXin@mail.com  
-{20260730}
+{20260731}
 
