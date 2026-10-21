@@ -2,18 +2,18 @@
 最新网址域名
 请收藏此页面（重要） 建议Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 <br>
-【 http://www.rerege.forum 】
+【 http://www.rerege.asia 】
 <br>
-【 http://www.rerege.garden 】
+【 http://www.rerege.shop 】
 <br>
-【 http://www.rerege.qpon 】
+【 http://www.rerege.website 】
 <br>
-【 https://www.rerege.study 】
+【 https://www.rerege.work 】
 <br>
-【 https://www.rerege.surf 】
+【 https://www.rerege.tattoo 】
 <br>
 網站正确訪問方式: www@ReReGe@com （@换成点；不能访问加HTTPS）*
 <br>
 如果以上地址均不可用，索取最新地址,请发邮件到 wwwZuiXin@mail.com  
-{20260922}
+{20261022}
 
